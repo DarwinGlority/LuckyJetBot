@@ -1,5 +1,5 @@
 # Бот для игры Lucky Jet
-Получить бота для игры Lucky Jet вы можете тут: https://1luckyjet.ru
+Получить бота для игры Lucky Jet и сыграть вы можете тут: https://1luckyjet.ru
 # Как купить бота для Lucky Jet?
 Купить бота для Lucky Jet вы можете тут: https://t.me/damirglority
 # Цена для бота на Лаки джет
